@@ -1,6 +1,6 @@
 Hello! 
 
-My name is Jayapratha Ganesan! This is my space for my projects...
+My name is Jayapratha Ganesan! This is the space for my projects...
 
 
 Connect me on LinkedIn here: https://www.linkedin.com/in/jayamg/ 
